@@ -1,5 +1,5 @@
 ### 🌮tacocat backwards is still tacocat🌮
-https://discord.gg/nT7BsETapf join my discord server
+https://discord.gg/zVpbtgmehp join my discord server
 
 <!--
 **HuskyGT/HuskyGT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
